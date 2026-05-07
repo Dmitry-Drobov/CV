@@ -1,3 +1,3 @@
 # CV
 
-link to my CV: https://drive.google.com/file/d/19LLiGtWzo71IuOO4-9z-E9A6XpDjg-5n/view
+link to my CV: https://drive.google.com/file/d/1zIWsdgjQf374wnuKypmQ756Wcmj1T2m4/view
